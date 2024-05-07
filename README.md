@@ -1,6 +1,6 @@
-Boas vindas ao meu perfil 💙💙
+**Boas vindas ao meu perfil 💙💙**
 
-Meu nome é beatriz Batista Santos
+Meu nome é Beatriz Batista Santos
 
 - Estou estudando na Alura
 
